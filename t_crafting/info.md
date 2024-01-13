@@ -1,0 +1,1 @@
+tee mitä tykkäät iha sama muuta mite haluat ja tota tota joo eli severside kasaus paska ja idle 0.00ms ja käytössä max 0.20ms sekunnin jos osaat nii tee vaikka parempi tästä mut siin tollane simppeli
